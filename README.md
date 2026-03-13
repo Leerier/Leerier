@@ -16,7 +16,9 @@
 
 
 
-I'm also big frickin nostalgiatard 
+I'm also big frickin nostalgiatard
+
+**I LOVE SONIC THE HEDGEHOG!!!!!!!!!!!!**
 
 I LOVE she wants revenge
 
@@ -31,3 +33,4 @@ I LOVE she wants revenge
 ![]([https://files.catbox.moe/vvv8tf.gif](https://64.media.tumblr.com/62d243d5d20e9919f699fec3fbe080bd/7966a7023bb62dd9-ae/s100x200/461c4a47857e848623488d4346dc6c557241d73a.pnj))[quo~~te~~~]() *The one who sucks but never swallows.*
 :           18 y/o  ❁  awkward   .    ♡   Int  🦢 I'm #SWAG 
 ![](https://64.media.tumblr.com/62cbe84fc18ca984cd6b866d10e7648b/7966a7023bb62dd9-f9/s100x200/4b5415bd17a773c357a80dc12d2b0d27a427b665.pnj)
+![](https://64.media.tumblr.com/4c2e65c6feec52f7fc5cdb1b35314c97/3e919be74c0d52b7-b4/s250x400/d04a49ab2c56c0bf765c7d79896010ba36dba39a.webp)
