@@ -17,8 +17,10 @@
 
 
 I'm also big frickin nostalgiatard 
+
 I LOVE she wants revenge
 
+![](https://64.media.tumblr.com/92a6eadcd5e8324718fac83cf398a09b/2c45ba81bf511f45-02/s250x400/caf40c39475bcbbb6bb4c9d6260f469d3a6652ed.gifv)
 
 
 ![](https://64.media.tumblr.com/cc3713193d1d180d060c70ff3ac314b1/4c03cf772ce7f671-74/s2048x3072/9d5a65d1dfef1c5794acb51c60e3db28d6c82edb.pnj)
