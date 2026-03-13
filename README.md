@@ -24,7 +24,7 @@ I LOVE she wants revenge
 
 
 ![](https://64.media.tumblr.com/cc3713193d1d180d060c70ff3ac314b1/4c03cf772ce7f671-74/s2048x3072/9d5a65d1dfef1c5794acb51c60e3db28d6c82edb.pnj)
-          ![](https://64.media.tumblr.com/399c78930f7eb9b09c185a56321097fa/dc4189d05dad86ae-b2/s250x400/57be51f3c8d5a4731c642faa28ac0841fde14530.gifv)
+          ![](https://64.media.tumblr.com/b2cba4e6aa706d3063d5a030d264ab41/5b774ffceac4e756-d1/s250x400/02165fbb17833adc717b366c7a8d301cf8c17375.pnj)
 ✦ .     . ✦ .     . ✦ .     . ✦ .     . ✦ .    　 ⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣
 | ![](https://64.media.tumblr.com/2ee7e7d5c57e5601ff9bd7366e0520f6/0dbd0fd306bb2a1d-82/s75x75_c1/b37be48eef8c4ddcd513f3760f8a8514c51f7c3d.gifv)[]() ***Re***quest; ✅ |
 | -- |
