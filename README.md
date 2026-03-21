@@ -12,7 +12,7 @@
  
  Don't be afraid to point out if I make you uncomfortable because my social awareness BLOWS as I can hardly pick up on social cues!!!! I also have severe memory issues at times, if I ever start acting different or contradict myself please don't make a big deal out of it. Thank you!
  
-  I AM NOT COMFORTABLE MAKING FRIENDS WITH PEOPLE UNDER 16!!!!!!!!!!!!!!!!!!
+  I AM NOT COMFORTABLE MAKING FRIENDS WITH PEOPLE UNDER 16!!!!!!!!!!!!!!!!!! EXCEPTIONS ARE RARE!!!!!!!!!!!!
  
   ![](https://64.media.tumblr.com/a4cca1232b1f15b791c5e7d5b6eaf7d5/5732e589548c1c67-af/s250x400/a7f539d2694a3a1fac42de151bc3b7cb8e5ec58a.gifv)
 </div>
