@@ -56,3 +56,53 @@
 ![Typing SVG](https://readme-typing-svg.herokuapp.com?color=65ebb3&lines=Chat+to+me!;I+am+pretty+cool;Since+you+scrolled+this+far;interact!!;Or+leave+me+a+message+in+whispers;Love+you<3;I+Love+my+big+booty+husband+more)
 
 
+![](https://64.media.tumblr.com/69991bd64b1b803b67ae2f3334b625bd/4e7072fa72a90817-20/s2048x3072/709459e7b11a5f56045b1076a79ce64cef14574b.pnj) 
+
+
+
+
+
+
+
+
+
+.
+
+
+
+
+
+
+
+.
+
+
+
+
+
+
+
+
+
+.
+
+
+
+
+
+
+.
+
+
+
+
+
+.
+
+<div align="center">
+
+<a href="https://git.io/typing-svg">
+<img src="https://readme-typing-svg.demolab.com?font=Fira+Code&size=12&duration=4000&pause=500&color=5f6f6c&multiline=true&repeat=false&width=435&height=300&lines=you're+still+here;I+appreciate+your+patience;Very+inquisitive+aren't+you%3F;small+yap+session+but..;I+always+see+people+in+a+good+light;unless+proven+otherwise;It's+my+biggest+pet+peeve;I+also+believe+anyone+can+change;If+they+really+put+their+mind+to+it;Take+this+as+you+will;Give+others+a+chance;or+don't;we+don't+care;%5BAS%5D" />
+</a>
+
+</div>
