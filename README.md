@@ -5,7 +5,7 @@
 ⠀⠀He / She/ They ⠀⠀.⠀⠀Any⠀Terms
 ⠀⠀ **﹠** ⠀ It's getting litty on JIZZY!!!,, 
 ⠀**𓎟𓎟     ◟  　　　　 　◞    𓎟𓎟**
-![Typing SVG](https://readme-typing-svg.herokuapp.com?lines=Heyyy+ganggg!1!!;Welcome+to+my+profileuhhh&repeat=false) 
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&weight=100&size=18&pause=1000&color=4CF7BD&multiline=true&repeat=false&width=435&lines=Hey+gang!!1!;Welcome+to+thine+profile+)](https://git.io/typing-svg) 
 ![](https://64.media.tumblr.com/55bc4a3e70902a9d016e9f11edbc09fd/8a0e62d78a6b802f-4d/s540x810/e46fccf5bcb745339fd10fb98eb8234a20842100.gifv)
 <div align="center">
 . . Yours truly,, Lee! My demeanor is more often than not very unserious so please always assume that I'm joking. Don't be afraid to point out if I make you uncomfortable because my social awareness BLOWS as I can hardly pick up on social cues!!!! I also have severe memory issues at times, if I ever start acting different or contradict myself please don't make a big deal out of it. Thank you!
@@ -54,3 +54,5 @@
 
 
 ![Typing SVG](https://readme-typing-svg.herokuapp.com?color=65ebb3&lines=Chat+to+me!;I+am+pretty+cool;Since+you+scrolled+this+far;interact!!;Or+leave+me+a+message+in+whispers;Love+you<3;I+Love+my+big+booty+husband+more)
+
+
