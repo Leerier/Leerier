@@ -7,7 +7,7 @@
 ⠀**𓎟𓎟     ◟  　　　　 　◞    𓎟𓎟**
 ![](https://64.media.tumblr.com/55bc4a3e70902a9d016e9f11edbc09fd/8a0e62d78a6b802f-4d/s540x810/e46fccf5bcb745339fd10fb98eb8234a20842100.gifv)
 <div align="center">
-. . Yours truly,, Lee! My demeanor is more often than not very unserious so please always assume that I'm joking. Don't be afraid to point out if I make you uncomfortable because my social awareness BLOWS as I can hardly pick up on social cues!!!!
+. . Yours truly,, Lee! My demeanor is more often than not very unserious so please always assume that I'm joking. Don't be afraid to point out if I make you uncomfortable because my social awareness BLOWS as I can hardly pick up on social cues!!!! I also have severe memory issues at times, if I ever start acting different or contradict myself please don't make a big deal out of it. Thank you!
   
   I AM NOT COMFORTABLE MAKING FRIENDS WITH PEOPLE UNDER 16!!!!!!!!!!!!!!!!!!
  
@@ -15,15 +15,24 @@
 </div>
 
 
+![](https://64.media.tumblr.com/cc3713193d1d180d060c70ff3ac314b1/4c03cf772ce7f671-74/s2048x3072/9d5a65d1dfef1c5794acb51c60e3db28d6c82edb.pnj)
+<div align="center">
+ ☆ I'm also big frickin nostalgiatard
 
-I'm also big frickin nostalgiatard
+ ☆ **I LOVE SONIC THE HEDGEHOG!!!!!!!!!!!!**
 
-**I LOVE SONIC THE HEDGEHOG!!!!!!!!!!!!**
+ ☆ I have memory issues
 
-I LOVE she wants revenge
+ ☆ Nintendo and Segatard 
 
+ ☆ I love robloxslop talk to me about popular roblox games
+
+ ☆ I'm smart sometimes other times gurrr durrr
+
+ ☆ I LOVE she wants revenge
+ 
 ![](https://64.media.tumblr.com/92a6eadcd5e8324718fac83cf398a09b/2c45ba81bf511f45-02/s250x400/caf40c39475bcbbb6bb4c9d6260f469d3a6652ed.gifv)
-
+</div>
 
 ![](https://64.media.tumblr.com/cc3713193d1d180d060c70ff3ac314b1/4c03cf772ce7f671-74/s2048x3072/9d5a65d1dfef1c5794acb51c60e3db28d6c82edb.pnj)
           ![](https://64.media.tumblr.com/b2cba4e6aa706d3063d5a030d264ab41/5b774ffceac4e756-d1/s250x400/02165fbb17833adc717b366c7a8d301cf8c17375.pnj)
